@@ -1,2 +1,2 @@
 # Илон Маск...
-[Вся правда об Илоне Маске](https://zhivaevartem.github.io/RealElonMusk.../)
+[Узнать секреты](https://blessed-988.github.io/RealElonMusk.../)
